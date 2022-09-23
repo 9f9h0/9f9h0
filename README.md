@@ -1,0 +1,5 @@
+- Hi, I’m @9f9h0
+- I’m interested in doxing
+- I’m currently learning ruby
+- jami : darkx
+- tox : F9B7EA20EBD415A3A475960F3482CC20EA010C5028307A5CA35A9D6A211B2266E93D748333F6
